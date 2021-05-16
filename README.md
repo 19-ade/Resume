@@ -1,2 +1,2 @@
 # Resume
-My updated Resume . Anwesan De
+My updated Resume .
